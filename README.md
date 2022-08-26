@@ -1,6 +1,6 @@
 Hello, im Paul and I own a company while being 19 years old.
 
-I have experience in many things like <br>
+I have experience in many things like: <br>
 ~60h Graphic Design (Canva, PlaceIt, Publisher, Gimp, Krita...) includes a 6 week internship <br>
 ~30h Video editing (DaVinci Resolve, CapCut) <br>
 ~20h 3d Design (Blender) <br>
