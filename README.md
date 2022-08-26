@@ -9,6 +9,7 @@ I have experience in many things like: <br>
 As you can see I have nothing that I am really experienced at, so thats why, 
 starting from today the 26th August, im going to socially isolate myself because I want to see what I can achieve if I not only try but do my best.
 I couldn't really find another way to change myself i do have a healthy routine but im not getting enough work done.
+My focus is on web design.
 
 Also i love doing Calisthenics in my free time and my gym split is:
 upper body, rest day, lower body, rest day and repeat.
